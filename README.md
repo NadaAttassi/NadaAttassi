@@ -1,4 +1,4 @@
-# 💫 Hi,I'm Nada:
+# 👋  Hi,I'm Nada:
 🔭Software engineering student
 
 ## 🌐 Socials:
